@@ -5,4 +5,8 @@ fashion and reduce textile waste by encouraging users to reuse wearable garments
 discarding them.
 ---
 
-
+Team members name :- 
+1- Nitin Kumar (nitinkumar9452138946@gmail.com)
+2- Parth Sohaney (parthsohaney04@gmail.com)
+3- Harsh Sharma (harsh639284@gmail.com)
+4- Shudhanshu Shukla (shukla1243sudhanshu@gmail.com)
