@@ -18,4 +18,5 @@ discarding them.
 - **Harsh Sharma**  
   [harsh639284@gmail.com](mailto:harsh639284@gmail.com)
 
-- \*\*Shudhanshu
+- **Shudhanshu Shukla **
+  [shukla1243sudhanshu@gmail.com](mailto:shukla1243sudhanshu@gmail.com)
